@@ -1,2 +1,0 @@
-# wasimshakir.lnk
-my portfolio 
